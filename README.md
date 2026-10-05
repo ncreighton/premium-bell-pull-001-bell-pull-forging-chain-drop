@@ -1,0 +1,2 @@
+# premium-bell-pull-001-bell-pull-forging-chain-drop
+Tired of losing track of custom bell pull orders, forging specs, and chain drop measurements across sticky notes and scattered spreadsheets? Your craft studio deserves a dedicated command center.  This Notion template transforms your bell pull forging and chain drop craft business into a streamlined operation. Stop juggling client requests, materia
